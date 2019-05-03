@@ -21,3 +21,11 @@ YSI developed the core algorithms FATP in 2003, widely applied in foreign exchan
 YSI was founded in year 2000 in Singapore, which now operating in 12 countries, active in Asia, including Hong Kong, Taiwan, and Australia and Beijing. We manage various fields in asset capital and geographical markets a full range of investment management; headquarters and representative offices are located in or near our investment markets, in order to committed and provide first-hand study for investment research, so the value clients will achieve their financial goals. Technology was an increasingly important element of financial development, YSI understand of client wants and need, which continuous increasing innovation on IT technologies to solve and satisfy customer beyond the expectation of global level.
 
 [www.ysicorp.com](https://www.ysicorp.com)
+
+Social Network
+
+[Facebook](https://www.facebook.com/ysicorp)
+[Twitter](https://twitter.com/YSICorp)
+[Linkedin](https://www.linkedin.com/company/ysicorp)
+[Pinterest](https://www.pinterest.com/ysicorp)
+[Instagram](https://www.instagram.com/ysicorporation)
