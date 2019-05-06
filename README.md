@@ -24,8 +24,8 @@ YSI was founded in year 2000 in Singapore, which now operating in 12 countries, 
 
 Social Network
 
-[Facebook](https://www.facebook.com/ysicorp)
-[Twitter](https://twitter.com/YSICorp)
-[Linkedin](https://www.linkedin.com/company/ysicorp)
-[Pinterest](https://www.pinterest.com/ysicorp)
-[Instagram](https://www.instagram.com/ysicorporation)
+- [Facebook](https://www.facebook.com/ysicorp)
+- [Twitter](https://twitter.com/YSICorp)
+- [Linkedin](https://www.linkedin.com/company/ysicorp)
+- [Pinterest](https://www.pinterest.com/ysicorp)
+- [Instagram](https://www.instagram.com/ysicorporation)
