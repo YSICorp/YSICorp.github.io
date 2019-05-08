@@ -2,6 +2,8 @@
 
 YSI is one of the pioneers in thematic investment, focusing on indentifying the themes and trend on global economy, long-term value of the investment, macro-perspective of the relationship between political and economic, to evaluate and monitor the benefit of events in the development progress, then capturing new investment opportunities in the global market.
 
+About wealth management, our financial advisors can help valued clients achieve the goals. Nearly 16 years, through the core values of customer's interests first, providing services and solutions, helping to establish, maintain and manage the delegate. We understand our customers ' wishes by provide trust and security, and we are committed to our goals, striving for long-term excellent performance, become a leader in thematic and hedge investment leader.
+
 # Responsibility
 
 A responsible approach to business is a key factor determining a company’s long-term success. We have a broad understanding of our duties as a financial services provider, member of society and employer. Committed to taking responsibility for our position and managing our business to provide a positive impact on society; contribute to the business activities and ultimately the success of our clients. Delivering value to our clients and society as a whole requires the commitment of our people – our greatest asset.
