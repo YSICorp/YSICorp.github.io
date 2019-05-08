@@ -27,5 +27,6 @@ Social Network
 - [Facebook](https://www.facebook.com/ysicorp)
 - [Twitter](https://twitter.com/YSICorp)
 - [Linkedin](https://www.linkedin.com/company/ysicorp)
+- [MIX](https://mix.com/ysicorp)
 - [Pinterest](https://www.pinterest.com/ysicorp)
 - [Instagram](https://www.instagram.com/ysicorporation)
