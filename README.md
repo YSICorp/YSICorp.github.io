@@ -24,6 +24,12 @@ YSI was founded in year 2000 in Singapore, which now operating in 12 countries, 
 
 [www.ysicorp.com](https://www.ysicorp.com)
 
+Market Research
+
+- [Economic Calendars](https://www.ysicorp.com/latest/calendars)
+- [News](https://www.ysicorp.com/latest/news)
+- [Research](https://www.ysicorp.com/latest/research)
+
 Social Network
 
 - [Facebook](https://www.facebook.com/ysicorp)
