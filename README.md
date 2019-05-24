@@ -40,3 +40,4 @@ Social Network
 - [Tumblr](https://ysicorp.tumblr.com)
 - [Pinterest](https://www.pinterest.com/ysicorp)
 - [Instagram](https://www.instagram.com/ysicorporation)
+- [FlipBoard](https://flipboard.com/@ysicorp)
